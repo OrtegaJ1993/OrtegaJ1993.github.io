@@ -1,1 +1,10 @@
 # OrtegaJ1993.github.io
+# About me 
+#### My interest
+Growing up on the islands of Oahu, Hawaii, I thorougly enjoy being in the water. These past few years, living in North Carolina, I have found a new love for paddleboarding. My wife and I spend most of the summer paddleboarding at Lake Falls. We enjoy filling up a cooler full of beer and eating Jersey Mike sub sandwiches and blaring music on my waterproof speaker. I am also a huge fan of the Tampa Bay Buccaneers. Growing up and watching players like Mike Alstott, Ronde Barber, to now Mike Evans and Lavonte David has always been very fun to watch. 
+#### Favorite Bands
+Music is a big part of my life. I am a 90's kid and my taste of music has not really changed. I am a huge punk rock fan and love bands and music groups from the mid to late 90's and early 2000's. Some of my favorite bands are Blink 182, Creed, Angels and Airwaves, Paramore, 3 Doors Down, Sum 41 and vertical horizon. There are some other new artist that I really do enjoy that are not in that era. Artist like Post Malone, Billie Eillish, Adele, James Bay, and Roddy Rich. Music is a big part of my life. 
+#### Websites I Reccommend
+[Youtube](www.Youtube.com): Youtube is one of my favorite sites to use. There are over 2.5 billion monthly active users that use the site. Youtube is a great site to find all kinds of entertaining videos, music, tutorials, latest current events and more. Youtube also is a wonderful site to use for learning. You can find tons of lectures and educational videos within in the site. 
+
+[Facebook](https://www.facebook.com/): Facebook is also a great social media site that billions of people use to connect with others. It is a platform that I use to connect with all my friends and family that are all over the world. It is easy to use and convenient for me to share photo's and video's to all my loved ones. I have been a user since 2008 and have been able to keep in touch with friends from Hawaii, to my mother linving in the Philippines. 
